@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Shujjat Ali
+- 👀 I’m interested in all the good things universe has to offer
+- 🌱 I’m currently learning lot many things everyday
+- 💞️ I’m looking to collaborate on business and technical ends
+- 📫 How to reach me shujjat.shirafat@gmail.com and whatsapp +923364540037
