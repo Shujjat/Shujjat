@@ -3,3 +3,4 @@
 - 🌱 I’m currently learning lot many things everyday
 - 💞️ I’m looking to collaborate on business and technical ends
 - 📫 How to reach me shujjat.shirafat@gmail.com and whatsapp +923364540037
+- and my LinkedIn is this: https://www.linkedin.com/in/shujjatali/
